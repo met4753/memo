@@ -1,0 +1,2 @@
+# memo
+müzik çalar
